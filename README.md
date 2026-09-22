@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AULJ890613HDFGNL08
+AULJ890613HDFGNL08
